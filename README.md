@@ -27,4 +27,4 @@
 
 ## Connect with Me
 
-- LinkedIn: https://www.linkedin.com/in/your-linkedin-godfirst-ikisa
+- LinkedIn: https://www.linkedin.com/in/linkedin-godfirst-ikisa
